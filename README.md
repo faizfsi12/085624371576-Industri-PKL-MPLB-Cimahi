@@ -9,7 +9,7 @@ Hubungi nomor dibawah untuk informasi lebih lanjut!
 Kontak :
 085624371576
 
-Alamat:
+Alamat :
 Gg. Ijan,10 Ciwaruga, Kec. Parongpong, Kabupaten Bandung Barat, Jawa Barat 40559
 
 https://magangmplbcimahidankarangmekar.blogspot.com/
